@@ -1,4 +1,4 @@
-
+stealth Script for shrink for brainrots is the best shrink for brainrots Script, featuring auto-farm and invisibility. Safe and powerful for all your
 
 
 
